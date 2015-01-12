@@ -1,7 +1,5 @@
-***********************
 
-Practice A (individual)
 
-By: Adrianne Peredo
+PRACTICE A (INDIVIDUAL)
 
-***********************
+BY: ADRIANNE PEREDO
